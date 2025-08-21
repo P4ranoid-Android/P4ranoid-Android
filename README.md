@@ -1,4 +1,4 @@
-# WarmIntroductions.exe
+
 ## Nice to meet you! :-D
  > I'm a returning player, looking for more friends.\
  > I am quite awkward in conversation, and chronically tired.\
