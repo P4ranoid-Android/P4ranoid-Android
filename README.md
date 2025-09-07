@@ -4,7 +4,7 @@
  > I am quite awkward in conversation, and chronically tired.\
  > I am most likely active in late afternoon, to late night hours.
  
- >Contact me as **grumphyGlyphs** on Pesterchum, or as **mori_inignii** on Discord
+ 
  
  # Do's and Don'ts
  ## I like it when... 
