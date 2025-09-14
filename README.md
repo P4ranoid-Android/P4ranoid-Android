@@ -1,5 +1,5 @@
 
-## Nice to meet you! :-D
+## Nice to meet you! :3
  > I'm a returning player, looking for more friends.\
  > I am quite awkward in conversation, and chronically tired.\
  > I am most likely active in late afternoon, to late night hours.
