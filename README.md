@@ -29,9 +29,7 @@
   > Be honest with others, be honest with yourself!
 > 
 
-  ![IMG_20250916_180610111](https://github.com/user-attachments/assets/60b9c5b4-864c-4d9c-8e8b-8143a44c6d67)
 
- ![IMG_20250916_180251624](https://github.com/user-attachments/assets/7f62bb45-3b7e-467e-a713-230d45b46f0e)
  
 
   
