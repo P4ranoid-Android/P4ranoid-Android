@@ -2,7 +2,7 @@
 ## Nice to meet you! :3
  > I'm a returning player, looking for more friends.\
  > I am quite awkward in conversation, and chronically tired.\
- > **I am not currently active due to a big, important exam coming in November.**
+ > **I am not currently active due to a big, important exam coming in November.**\
  > Discord is kitty_skittish, will only accept requests if i recognize it's a friend!
  
  
